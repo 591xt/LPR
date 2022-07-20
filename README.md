@@ -1,5 +1,6 @@
 ### LPR
 
+##### [2022年07月20日  1年期LPR为3.7%，5年期以上LPR为4.45%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/4611012/index.html)
 
 ##### [2022年06月20日  1年期LPR为3.7%，5年期以上LPR为4.45%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/4580399/index.html)
 
