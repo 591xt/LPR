@@ -1,5 +1,7 @@
 ### LPR
 
+##### [2023年09月20日  1年期LPR为3.45%，5年期以上LPR为4.2%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/5073637/index.html)
+
 ### [2023年08月21日  1年期LPR为3.45%，5年期以上LPR为4.2%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/5033439/index.html)
 
 ##### [2023年07月20日  1年期LPR为3.55%，5年期以上LPR为4.2%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/4994729/index.html)
