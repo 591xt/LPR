@@ -1,6 +1,6 @@
 ### LPR
 
-
+##### [2025年1月20日  1年期LPR为3.1%，5年期以上LPR为3.6%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/5570711/index.html)
 
 ##### [2024年12月20日  1年期LPR为3.1%，5年期以上LPR为3.6%](http://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/5539790/index.html)
 
