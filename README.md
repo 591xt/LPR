@@ -1,8 +1,10 @@
 ### LPR
 
+##### [2026年4月20日  1年期LPR为3.0%，5年期以上LPR为3.5%](https://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/2026041714492978015/index.html)
+
+##### [2026年3月20日  1年期LPR为3.0%，5年期以上LPR为3.5%](https://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/2026032008304337760/index.html)
 
 ##### [2026年2月24日  1年期LPR为3.0%，5年期以上LPR为3.5%](https://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/2026022408185939559/index.html)
-
 
 ##### [2026年1月20日  1年期LPR为3.0%，5年期以上LPR为3.5%](https://www.pbc.gov.cn/zhengcehuobisi/125207/125213/125440/3876551/2026012008464316247/index.html)
 
